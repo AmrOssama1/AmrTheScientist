@@ -71,4 +71,3 @@ N.B: I don’t bite (unless you're a badly formatted CSV file).
 
 
 
-📬 **Contact:amrusama1990@gmail.com  
